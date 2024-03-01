@@ -1,2 +1,2 @@
-- 👋 Hi, I’m @Vishny Madhav
+- 👋 Hi, I’m @Vishnu Madhav
 
